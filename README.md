@@ -1,0 +1,2 @@
+# mogan-RIchard
+TRUST ONESELF!
